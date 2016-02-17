@@ -1,4 +1,4 @@
 # final-project
-something cool blahblahblah
+a cool blahblahblah
 
-I like cool things cool beansss blalhblabhbhaslk jsldfjl ajsdf 
+I like cool things cool beansss asgasdgsagsdgasg jsldfjl ajsdf asdfasdfasdfasfasdf
